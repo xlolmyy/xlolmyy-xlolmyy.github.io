@@ -1,1 +1,1 @@
-# xlolmyy-xlolmyy.github.io
+# xlolmyy.github.io
